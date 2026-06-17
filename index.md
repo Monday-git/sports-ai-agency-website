@@ -27,5 +27,5 @@ Safeguarding audit checklist, policy review, training record tracker, consent te
 
 ## Book a Consultation
 
-Email: [your email]
-Phone: [your phone]
+Email: [monday.ozoya@ozoyafootballfaoundation.org]
+Phone: [+44 7450 951768]
